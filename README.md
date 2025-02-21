@@ -1,5 +1,5 @@
 # TÜRK İFŞA
-# 🏆 **[Türk İfşa arşivi sitesine giriş yapmak için yönlendirme adresine geç!]([[https://gitlink.pro/9TIKLA))** ⚽🔥
+# 🏆 **[Türk İfşa arşivi sitesine giriş yapmak için Tıkla!](https://gitlink.pro/9TIKLA)** ⚽🔥
 
 [![Türk İfşa](https://pbs.twimg.com/media/GiSdvvJWQAAteed?format=jpg&name=small)](https://ay.live/turkp0)  
 
