@@ -1,7 +1,7 @@
 # TÜRK İFŞA 🔞
 # 📢 **[Türk İfşa porno sitesine giriş yapmak için Tıkla!](https://ay.live/VIDEO)** 🔞🔞🔞
 
-[![Türk İfşa](https://pbs.twimg.com/media/GiSdvvJWQAAteed?format=jpg&name=small)](https://ay.live/VIDEO)  
+[![Türk İfşa](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEh-8CQLLasUfzNFtZddOFgnxUt-fp2zt2HwzUIocvkUiJeNniPsSEuqY104o4fAyJNzHuMgz-O_bgiC6vHxxacOyWCbQhkb1lfjb-XJlDlckmKLWENycG4mSo31RHw_ZutFL3rbUtJ411xRda0gg8hMWw54CzCxCCVTz5b3ZrXa4g8LoX9-5KZh7nLoAZw/s1600/asd.jpg)](https://ay.live/VIDEO)  
 
 --- Fotoğrafa tıkla, yönlendirme adresinde 5 saniye bekle ve siteye geçiş yap!
 
